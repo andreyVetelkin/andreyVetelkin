@@ -60,7 +60,7 @@
 
 
 ## Connect with me  
-- 📞 Telegram - @andrey_vetelkin  
+- 📞 Telegram - https://t.me/andrey_vetelkin 
   
 
 - 📧 Email - andrtv0@gmail.com  
